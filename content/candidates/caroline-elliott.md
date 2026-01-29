@@ -22,7 +22,7 @@ social:
 
 ## Announcements
 
-Campaign announcements will be posted here.
+<a href="https://www.withoutdiminishment.com/p/im-taking-the-hard-road-heres-why">I'm taking the hard road. Here's why.</a>
 
 ## Staff & Supporters
 

@@ -23,7 +23,8 @@ social:
 
 ## Announcements
 
-Campaign announcements will be posted here.
+<a href="https://www.petermilobar.ca/news/watch-peter-milobar-leadership-campaign-announcement/">Campaign announcement video</a>
+<a href="https://www.petermilobar.ca/news/ditching-dripa-wouldnt-ditch-reconciliation-says-b-c-conservative-leadership-candidate/">Milobar calls to repeal DRIPA</a>
 
 ## Staff & Supporters
 
