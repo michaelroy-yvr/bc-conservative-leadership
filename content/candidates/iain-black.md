@@ -23,7 +23,7 @@ social:
 
 ## Announcements
 
-Campaign announcements will be posted here.
+<a href="https://iainblack.ca/news/article/leadership-bid-launch">Iain Black pledges to "Get BC Back on Track"</a>
 
 ## Staff & Supporters
 
